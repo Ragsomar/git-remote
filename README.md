@@ -1,2 +1,2 @@
-A la Wild, on code en chausettes
-
+A la Wild, on code en chausettes.
+C' est bien.
